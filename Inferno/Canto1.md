@@ -18,7 +18,7 @@ Io non so ben ridir com' i' v'intrai,
 tant' era pien di sonno a quel punto
 che la verace via abbandonai.
 
-Ma poi ch'i' fui al piè d'un colle giunto,
+Ma poi che io fui al piè d'un colle giunto,
 là dove terminava quella valle
 che m'avea di paura il cor compunto,
 
